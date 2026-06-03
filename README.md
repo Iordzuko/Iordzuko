@@ -22,7 +22,7 @@
   </a>
 </p>
 <p align="center">
-  <a href="https://rentry.co/firelordd">
+  <a href="https://jayne.atabook.org">
     <img src="https://file.garden/aPWYj2QLMUuq5c-w/Untitled138_20260603130902.png" alt="rentry" width="20%" />
   </a>
 </p>
