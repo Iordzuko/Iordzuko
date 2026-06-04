@@ -1,4 +1,4 @@
-i just noticed that [@title_town](https://github.com/title_town) has set me as zuko of pony town thankchu! Im so happy :))
+i just noticed that [@title-town](https://github.com/title-town) has set me as zuko of pony town thankchu! Im so happy :))
 <div align="center">
   <img src="https://file.garden/aPWYj2QLMUuq5c-w/IMG_0014.jpeg" width="35%">
   
