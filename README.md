@@ -1,4 +1,8 @@
-
+i just noticed that [@title_town](https://github.com/title_town) has set me as zuko of pony town thankchu! Im so happy :))
+<div align="center">
+  <img src="https://file.garden/aPWYj2QLMUuq5c-w/IMG_0014.jpeg" width="35%">
+  
+</div>
 <div align="center">
   <img src="https://file.garden/aPWYj2QLMUuq5c-w/Untitled133_20260602195140.webp" width="35%">
 </div>
