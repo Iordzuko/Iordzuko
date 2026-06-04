@@ -1,7 +1,6 @@
-i just noticed that [@title-town](https://github.com/title-town) has set me as zuko of pony town thankchu! Im so happy :))
+Hi! to ATLA fans,, dont know wheres the ATLA area? its below flower shop on the marketplace! please go there its very dead there. LOL. 
 <div align="center">
-  <img src="https://file.garden/aPWYj2QLMUuq5c-w/IMG_0014.jpeg" width="35%">
-  
+  <img src="https://file.garden/aPWYj2QLMUuq5c-w/ATLA2" width="35%">
 </div>
 <div align="center">
   <img src="https://file.garden/aPWYj2QLMUuq5c-w/Untitled133_20260602195140.webp" width="35%">
@@ -31,4 +30,6 @@ i just noticed that [@title-town](https://github.com/title-town) has set me as z
   </a>
 </p>
 
-
+i just noticed that [@title-town](https://github.com/title-town) has set me as zuko of pony town thankchu! Im so happy :))
+<div align="center">
+  <img src="https://file.garden/aPWYj2QLMUuq5c-w/IMG_0014.jpeg" width="35%">
